@@ -1,8 +1,8 @@
 # hackathon
 
-The day's agenda
+SATURDAY'S KICK-OFF AGENDA
 
-When: Saturday 8:30am - 7pm
+When: October 15 (8:30am - 7:00pm)
 
 8:30am - Welcome - Introduction
 
@@ -20,4 +20,15 @@ Work some more
 
 Work some more
 
-7pm - Home!
+7pm - Kick-off Ends!
+
+--------------------------
+
+THURSDAY'S AWARDS AGENDA
+
+When: November 10 (6:30pm - 8:30pm)
+
+Project Presentations / Judging / Awards
+
+8:30pm  End
+
